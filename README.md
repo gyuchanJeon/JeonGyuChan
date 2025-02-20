@@ -85,6 +85,7 @@
 
 ### 📫 How to reach me:
 - **Email**: ian810900@gmail.com
+- **Notion**: [노션 링크](https://feather-chime-936.notion.site/Jeon-GyuChan-ed949794fe5846d0bb70679bc7d70aba)
 
 ---
 
